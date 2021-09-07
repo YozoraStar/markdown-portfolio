@@ -1,1 +1,5 @@
-Replace this with a list of your favorite things.
+1. Anime
+2. Dance
+3. Waifus
+   1. Sento Isuzu
+   2. Kawakami Mai
